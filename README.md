@@ -2,4 +2,4 @@
 ![](https://raw.githubusercontent.com/V4-RK/V4-RK/refs/heads/main/riqc.png)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [rentry܀](https://rentry.co/flirtyman)
 ![](https://raw.githubusercontent.com/V4-RK/V4-RK/refs/heads/main/familiya.png)
-ㅤㅤ— no dni except the basic criteria, _'block freely.'_ 
+ㅤㅤ— no dni except the basic criteria, _'i block freely.'_ 
